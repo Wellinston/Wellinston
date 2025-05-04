@@ -50,7 +50,7 @@ Here are some of the projects I've worked on:
 Feel free to reach out or connect with me!
 
 - ✉️ wellinston.silva@gmail.com
-- 💼 [[LinkedIn](https://www.linkedin.com/in/wellinston/) 
+- 💼 [LinkedIn](https://www.linkedin.com/in/wellinston/) 
 
 ---
 
